@@ -1,7 +1,7 @@
 # About
-British Academy Postdoctoral Fellow at Royal Holloway, University of London 
+I am a British Academy Postdoctoral Fellow at Royal Holloway, University of London 
 
 # Contact
-Alexander[dot]Vickery[at]rhul[dot]ac[dot]uk
+Alexander.Vickery@rhul.ac.uk
 
 
