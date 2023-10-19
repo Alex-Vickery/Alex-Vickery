@@ -3,7 +3,9 @@ I am a British Academy Postdoctoral Fellow [@rhulecon](https://www.royalholloway
 
 I try to understand marital sorting patterns - primarily across ethnic boundaries - and implications for social integration. I also study how people from diverse backgrounds - including socio-economic status, ethnicity, sexual orientation - make education choices. 
 
-# Contact
-You are welcome to contact me by email here - [email me](mailto:alexvickery2018@gmail.com)
+# Links
+You can find a complete list of my papers here - 
+You can find my full CV here -
+You can contact me by email here - [email me](mailto:alexvickery2018@gmail.com)
 
 
