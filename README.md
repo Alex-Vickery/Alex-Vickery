@@ -1,7 +1,9 @@
 # About
-I am a British Academy Postdoctoral Fellow at Royal Holloway, University of London 
+I am a postdoctoral fellow [@rhulecon](https://www.royalholloway.ac.uk/research-and-teaching/departments-and-schools/economics/).
+
+I try to understand marital sorting patterns - primarily across ethnic boundaries - and implications for social integration. I also study how people from diverse backgrounds - including socio-economic status, ethnicity, sexual orientation - make education choices. 
 
 # Contact
-Alexander.Vickery@rhul.ac.uk
+[Email Me](mailto:alexvickery2018@gmail.com)
 
 
