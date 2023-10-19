@@ -5,7 +5,9 @@ I try to understand marital sorting patterns - primarily across ethnic boundarie
 
 # Links
 You can find a complete list of my papers here -  
+
 You can find my full CV here -  
+
 You can contact me by email here - [email me](mailto:alexvickery2018@gmail.com)
 
 
