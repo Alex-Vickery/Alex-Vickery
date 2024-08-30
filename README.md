@@ -1,5 +1,5 @@
 # About
-I am a former British Academy Postdoctoral Fellow [@rhulecon](https://www.royalholloway.ac.uk/research-and-teaching/departments-and-schools/economics/)
+I am a former British Academy Postdoctoral Fellow [@rhulecon](https://www.royalholloway.ac.uk/research-and-teaching/departments-and-schools/economics/), now working in the private sector
 
 I try to understand marital sorting patterns - primarily across ethnic boundaries - and implications for social integration. I also study how people from diverse backgrounds - including socio-economic status, ethnicity, sexual orientation - make education choices 
 
