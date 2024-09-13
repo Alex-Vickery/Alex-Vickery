@@ -1,5 +1,5 @@
 # About
-Assistant Manager, Economics BDO LLP | Former British Academy Postdoctoral Fellow [@rhulecon](https://www.royalholloway.ac.uk/research-and-teaching/departments-and-schools/economics/) 
+Assistant Manager, Economics, BDO LLP | Former British Academy Postdoctoral Fellow [@rhulecon](https://www.royalholloway.ac.uk/research-and-teaching/departments-and-schools/economics/) 
 
 My research tries to understand marital sorting patterns - primarily across ethnic boundaries - and implications for social integration. I also study how people from diverse backgrounds - including socio-economic status, ethnicity, sexual orientation - make education choices 
 
