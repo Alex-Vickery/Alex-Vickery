@@ -1,7 +1,7 @@
 # About
 Assistant Manager, Economics, BDO LLP | Former British Academy Postdoctoral Fellow [@rhulecon](https://www.royalholloway.ac.uk/research-and-teaching/departments-and-schools/economics/) 
 
-My research tries to understand marital sorting patterns - primarily across ethnic boundaries - and implications for social integration. I also study how people from diverse backgrounds - including socio-economic status, ethnicity, sexual orientation - make education choices 
+I spent three years in academia as a British Academy Postdoctoral Fellow working on various projects in labour and family economics. Currently, I'm an Assistant Manager in the Economics team at BDO LLP, working on commercial and competition disputes, applying my research experience to help clients navigate complex economic challenges.
 
 # Links
 You can find a complete list of my papers here -  [alexander-vickery.com/papers](https://www.alexander-vickery.com/papers)
