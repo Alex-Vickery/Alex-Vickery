@@ -1,5 +1,6 @@
 # About
 I am a competition economist specialising in antitrust & damages quantification. 
+
 Former British Academy Postdoctoral Fellow, and Honorary Research Associate at Royal Holloway, University of London.
 
 # Links
