@@ -10,5 +10,5 @@ You can find my full CV [here](CV.pdf)
 
 You can contact me by email [here](mailto:alexvickery2018@gmail.com)
 
-<img src="logo.png" width="100px">
+<img src="logo.png" width="125px">
 
