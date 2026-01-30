@@ -1,7 +1,5 @@
 # About
-I am a competition economist specialising in antitrust & damages quantification. 
-
-I earned my PhD from Royal Holloway, University of London in 2021, and am a former British Academy Postdoctoral Fellow.
+I am a Director in the Disputes & Economics team at Ankura's London office, specialising in antitrust & damages quantification. I earned me PhD in Economics from Royal Holloway University of London in 2021, and am a former British Academy Postdoctoral Fellow.
 
 A complete list of my publications is [here](https://www.alexander-vickery.com/papers) and my current CV is [here](CV.pdf).
 
